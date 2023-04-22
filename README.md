@@ -18,4 +18,16 @@ My personal all-time favourites
 13. hadaway - what is love?
 14. We're going to Ibiza - vengaboys
 15. Coldplay - Up and up
-16. 
+16. Take on Me- A-ha
+17. Complete Mess - 5 seconds of summer
+18. metamorphosis
+19. Ginga Pele
+20. Paradise - coldplay
+21. Other echoes free running
+22. Billie Jean
+23. Thriller
+24. Hold My Hand
+25. K'Naan- waving flag
+26. Safe and Sound-capital cities
+27. Feel your love-Jim Bakkum (the main chorus part)
+28. 
