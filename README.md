@@ -30,4 +30,8 @@ My personal all-time favourites
 25. K'Naan- waving flag
 26. Safe and Sound-capital cities
 27. Feel your love-Jim Bakkum (the main chorus part)
-28. 
+28. Can't stop the feeling - JT
+29. Bruce Springsteen - Secret Garden
+30. Bruce Sprinhsteen - Dancing in the dark
+31. Bryan Adams - Inside out
+32. 
