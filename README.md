@@ -40,5 +40,7 @@ My personal all-time favourites
 36. Bryan Adams - Inside out
 37. Dire Straits Walk of Life
 38. Sexy B*** - Akon
-39. 
+39. Elley Duhe - middle of the night
+40. Dire Straits - walk of life
+
 
