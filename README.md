@@ -38,35 +38,36 @@ My personal all-time favourites
 34. Bruce Springsteen - Secret Garden
 35. Bruce Sprinhsteen - Dancing in the dark
 36. Bryan Adams - Inside out
-37. Dire Straits Walk of Life
-38. Sexy B*** - Akon
-39. Elley Duhe - middle of the night
-40. Dire Straits - walk of life
-41. DJ NYK - bollywood sunset mix (Italy) 2023
-42. Snowfall
-43. James young infinity
-44. Coldplay - champion of the world
-45. Nirvana - Something in the way
-46. Ghungroo
-47. DJ nyk at  Adiyogi Sadhguru - first 4 minutes 😍
-48. Bhediyaa arijit song
-49. Now we are free Gladiator song
-50. Few Songs from "A Man called Otto"
-51. 10:35 Tiesto
-52. It doesn't really matter
-53. Metamorphosis slowed + reverb
-54. Angelia Richard Marx
-55. U2 - We are the people
-56. Interstellar Hans Zimmer Main Theme
-57. Don't kill the Magic!
-58. Right now Na na na
-59. Ve Maahi
-60. Let me entertain you - Robbie Williams
-61. Stay ft. Mikky ekko Rihanna
-62. Penthouse floor John legend
-63. 
+37. instant crush - daft Punk
+38. Dire Straits Walk of Life
+39. Sexy B*** - Akon
+40. Elley Duhe - middle of the night
+41. Dire Straits - walk of life
+42. DJ NYK - bollywood sunset mix (Italy) 2023
+43. Snowfall
+44. James young infinity
+45. Coldplay - champion of the world
+46. Nirvana - Something in the way
+47. Ghungroo
+48. DJ nyk at  Adiyogi Sadhguru - first 4 minutes 😍
+49. Bhediyaa arijit song
+50. Now we are free Gladiator song
+51. Few Songs from "A Man called Otto"
+52. 10:35 Tiesto
+53. It doesn't really matter
+54. Metamorphosis slowed + reverb
+55. Angelia Richard Marx
+56. U2 - We are the people
+57. Interstellar Hans Zimmer Main Theme
+58. Don't kill the Magic!
+59. Right now Na na na
+60. Ve Maahi
+61. Let me entertain you - Robbie Williams
+62. Stay ft. Mikky ekko Rihanna
+63. Penthouse floor John legend
 64. 
 65. 
+66. 
 
 
 
