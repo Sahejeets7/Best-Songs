@@ -56,21 +56,22 @@ My personal all-time favourites
 52. Bhediyaa arijit song
 53. Now we are free Gladiator song
 54. Few Songs from "A Man called Otto"
-55. 10:35 Tiesto
-56. It doesn't really matter
-57. Metamorphosis slowed + reverb
-58. Angelia Richard Marx
-59. U2 - We are the people
-60. Interstellar Hans Zimmer Main Theme
-61. Don't kill the Magic!
-62. Right now Na na na
-63. Ve Maahi
-64. Let me entertain you - Robbie Williams
-65. Stay ft. Mikky ekko Rihanna
-66. Penthouse floor John legend
-67. 
+55. Cool Kids Echosmith - low volume mei is best
+56. 10:35 Tiesto
+57. It doesn't really matter
+58. Metamorphosis slowed + reverb
+59. Angelia Richard Marx
+60. U2 - We are the people
+61. Interstellar Hans Zimmer Main Theme
+62. Don't kill the Magic!
+63. Right now Na na na
+64. Ve Maahi
+65. Let me entertain you - Robbie Williams
+66. Stay ft. Mikky ekko Rihanna
+67. Penthouse floor John legend
 68. 
 69. 
+70. 
 
 
 
