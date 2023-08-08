@@ -72,8 +72,8 @@ My personal all-time favourites
 68. In the Stars - Benson Boone and its sped up version.
 69. Desire - Years and years
 70. Strawberry guy -  F song slowed
-71. 
-72. 
+71. CR7 2009-10 teocri good intor song
+72. Of Mice and Men - sebring remix CR& video 2013-14 Mr Bundesteam
 
 
 
