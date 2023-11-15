@@ -81,6 +81,8 @@ My personal all-time favourites
 77. Peaches lofi
 78. Oh darling, please stay by me Dianna
 79. Supreme yogi - how to stay calm
+80. Syn cole - Ellie Goulding
+81. 
 
 
 
