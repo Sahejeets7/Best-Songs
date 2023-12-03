@@ -27,71 +27,72 @@ My personal all-time favourites
 23. Complete Mess - 5 seconds of summer
 24. metamorphosis
 25. After Dark - Mr.kitty
-26. Ginga Pele
-27. Paradise - coldplay
-28. Don't kill the Magic - Magic!
-29. Mesut ozil humiliates Great Players
-30. Rain over me -  Pitbull
-31. I like you - Post Malone
-32. Other echoes free running
-33. Billie Jean
-34. Thriller
-35. Hold My Hand
-36. K'Naan- waving flag
-37. Safe and Sound-capital cities
-38. Feel your love-Jim Bakkum (the main chorus part)
-39. Can't stop the feeling - JT
-40. Bruce Springsteen - Secret Garden
-41. Bruce Sprinhsteen - Dancing in the dark
-42. Bryan Adams - Inside out
-43. instant crush - daft Punk
-44. Dire Straits Walk of Life
-45. Sexy B*** - Akon
-46. Elley Duhe - middle of the night
-47. Dire Straits - walk of life
-48. DJ NYK - bollywood sunset mix (Italy) 2023
-49. Snowfall
-50. RObert Miles - Children
-51. James young infinity
-52. Coldplay - champion of the world
-53. Nirvana - Something in the way
-54. Ghungroo
-55. DJ nyk at  Adiyogi Sadhguru - first 4 minutes 😍
-56. Bhediyaa arijit song
-57. Now we are free Gladiator song
-58. Few Songs from "A Man called Otto"
-59. Cool Kids Echosmith - low volume mei is best
-60. 10:35 Tiesto
-61. It doesn't really matter
-62. Metamorphosis slowed + reverb
-63. Angelia Richard Marx
-64. U2 - We are the people
-65. Interstellar Hans Zimmer Main Theme
-66. Don't kill the Magic!
-67. Right now Na na na
-68. Ve Maahi
-69. Let me entertain you - Robbie Williams
-70. Stay ft. Mikky ekko Rihanna
-71. Penthouse floor John legend
-72. In the Stars - Benson Boone and its sped up version.
-73. Desire - Years and years
-74. Strawberry guy -  F song slowed
-75. CR7 2009-10 teocri good intor song
-76. Of Mice and Men - sebring remix CR& video 2013-14 Mr Bundesteam
-77. Careless whisper - george michael
-78. Streets of philadelphia - Bruce Springsteen
-79. Peaches lofi
-80. Oh darling, please stay by me Dianna
-81. Supreme yogi - how to stay calm
-82. Syn cole - Ellie Goulding
-83. Meeting Kitty - oppenheimer
-84. Groves - oppenheimer
-85. Paolo Nutini - Last Request
-86. When my train pulls in - Gary Clark Jr.
-87. Tera Yaar Bolda
-88. All the times -  Zara Larsson
-89. In Da Club - 50 cent
-90. Beautiful mistakes - Maroon 5
+26. REO Speedwagon - I can't fight this feeling any longer
+27. Ginga Pele
+28. Paradise - coldplay
+29. Don't kill the Magic - Magic!
+30. Mesut ozil humiliates Great Players
+31. Rain over me -  Pitbull
+32. I like you - Post Malone
+33. Other echoes free running
+34. Billie Jean
+35. Thriller
+36. Hold My Hand
+37. K'Naan- waving flag
+38. Safe and Sound-capital cities
+39. Feel your love-Jim Bakkum (the main chorus part)
+40. Can't stop the feeling - JT
+41. Bruce Springsteen - Secret Garden
+42. Bruce Sprinhsteen - Dancing in the dark
+43. Bryan Adams - Inside out
+44. instant crush - daft Punk
+45. Dire Straits Walk of Life
+46. Sexy B*** - Akon
+47. Elley Duhe - middle of the night
+48. Dire Straits - walk of life
+49. DJ NYK - bollywood sunset mix (Italy) 2023
+50. Snowfall
+51. RObert Miles - Children
+52. James young infinity
+53. Coldplay - champion of the world
+54. Nirvana - Something in the way
+55. Ghungroo
+56. DJ nyk at  Adiyogi Sadhguru - first 4 minutes 😍
+57. Bhediyaa arijit song
+58. Now we are free Gladiator song
+59. Few Songs from "A Man called Otto"
+60. Cool Kids Echosmith - low volume mei is best
+61. 10:35 Tiesto
+62. It doesn't really matter
+63. Metamorphosis slowed + reverb
+64. Angelia Richard Marx
+65. U2 - We are the people
+66. Interstellar Hans Zimmer Main Theme
+67. Don't kill the Magic!
+68. Right now Na na na
+69. Ve Maahi
+70. Let me entertain you - Robbie Williams
+71. Stay ft. Mikky ekko Rihanna
+72. Penthouse floor John legend
+73. In the Stars - Benson Boone and its sped up version.
+74. Desire - Years and years
+75. Strawberry guy -  F song slowed
+76. CR7 2009-10 teocri good intor song
+77. Of Mice and Men - sebring remix CR& video 2013-14 Mr Bundesteam
+78. Careless whisper - george michael
+79. Streets of philadelphia - Bruce Springsteen
+80. Peaches lofi
+81. Oh darling, please stay by me Dianna
+82. Supreme yogi - how to stay calm
+83. Syn cole - Ellie Goulding
+84. Meeting Kitty - oppenheimer
+85. Groves - oppenheimer
+86. Paolo Nutini - Last Request
+87. When my train pulls in - Gary Clark Jr.
+88. Tera Yaar Bolda
+89. All the times -  Zara Larsson
+90. In Da Club - 50 cent
+91. Beautiful mistakes - Maroon 5
 
 
 
